@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on 
+- 🔭 I’m currently working on my freelance business
 - 🌱 I’m currently learning Python
 - 👯 I’m looking to collaborate on open source projects
 - 😄 Pronouns: He/Him/His
