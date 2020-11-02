@@ -1,4 +1,4 @@
-![AJ-6.jpg](https://i.postimg.cc/DZ8vKmFf/AJ-6.jpg)](https://postimg.cc/TLvMVdpB)
+![AJ-6.jpg](https://i.postimg.cc/DZ8vKmFf/AJ-6.jpg)
 ### Hi there 👋
 
 - 🔭 I’m currently working on my freelance business
